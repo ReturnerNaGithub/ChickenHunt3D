@@ -1,4 +1,4 @@
-# ChickenHunt3D
+# ¸Gaming Studio Damana
 
 Project: 1000 NFT tokens in 10 years.
 
